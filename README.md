@@ -1,1 +1,1 @@
-# 00_HEJ_TUE
+Det her projekt er jo bare tomt. Kæft det er plat!
